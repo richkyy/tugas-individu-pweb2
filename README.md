@@ -1,0 +1,2 @@
+# tugas-individu-pweb2
+F1E120040 RICKY MAULANA SINURAT
